@@ -17,7 +17,7 @@
 ————————————————
 * [赵晓：财富赢家的秉性-财富揭秘与启示](https://www.asuswebstorage.com/navigate/a/#/s/335FB60AAB114F6585370D1C904398F2Y)
 ——————————————————————————
-* [赵晓：从犹太人对孩子的教育中，我们能学到怎样的金钱观？](https://www.asuswebstorage.com/navigate/a/#/s/335FB60AAB114F6585370D1C904398F2Y)
+* [赵晓：从犹太人对孩子的教育中，我们能学到怎样的金钱观？](https://www.asuswebstorage.com/navigate/a/#/s/497C446B80F140CDA34C7691F3128D22Y)
 ————————————————
 * [赵晓：财富之王：企业家的特性（一）](https://www.asuswebstorage.com/navigate/a/#/s/4BD92B8C7E654077A26DAB3FB0522710Y)
 * [赵晓：财富之王：企业家的特性（二）](https://www.asuswebstorage.com/navigate/a/#/s/19F75A8AB4F74807A45974B172E3FB1DY)
