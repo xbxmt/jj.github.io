@@ -4,7 +4,7 @@
 ————————————————
 * [赵晓：犹太民族的成功之“谜”](https://www.asuswebstorage.com/navigate/a/#/s/EDE384F0D0CF4369BC3699B1DC3B3CC2Y)
 ————————————————
-* [赵晓：生命经济学的创新思考](https://www.asuswebstorage.com/navigate/a/#/s/7B0FA3C28FF84AD5942C3E2BBE49C0A8Y)
+* [赵晓：生命经济学的创新思考](https://www.asuswebstorage.com/navigate/a/#/s/E5970A04D7224CBDBAC63B7BCCD5515BY)
 ————————————————
 * [赵晓：经济学缺少人性？缺少灵性？](https://www.asuswebstorage.com/navigate/a/#/s/7C70E7D5733F43E6BF8BE916D40281A1Y)
 ————————————————
